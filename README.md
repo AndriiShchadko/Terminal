@@ -1,1 +1,1 @@
-(https://i0.wp.com/pureinfotech.com/wp-content/uploads/2020/01/windows-terminal-retro-green.jpg?fit=1600%2C932&quality=78&strip=all&ssl=1)
+![image](https://github.com/user-attachments/assets/7dded201-7bc6-466d-ad54-e2bfac0bc078)
